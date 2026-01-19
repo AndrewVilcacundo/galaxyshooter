@@ -64,5 +64,5 @@ https://www.youtube.com/watch?v=HHDb8yFTEJM
 ## 🕹️ Juego Publicado
 
 🎮 **Itch.io**:  
-
+https://andrewvilcacundo.itch.io/galaxyshooter
 
